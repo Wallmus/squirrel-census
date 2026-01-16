@@ -12,4 +12,4 @@ I hope the link above works.
 3. breathed on the computer wrong
 
 **Squirrel Photo Alert**<br />
-![squirrel waving hello](https://us2-browse.startpage.com/av/anon-image?piurl=https%3A%2F%2Finsider.si.edu%2Fwp-content%2Fuploads%2F2018%2F01%2FCalifornia-ground-squirrel_-photo-Wade-Tregaskis.jpg)
+![squirrel waving hello](https://georgiasquirrelremoval.com/wp-content/uploads/2019/04/ddd.jpg)
