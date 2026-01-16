@@ -4,7 +4,7 @@ Reasons for this readme file:
 * Making sure the formatting does what I think it would
 * Customizing things is fun
 
-[Trolley Problems tester link](https://neal.fun/absurd-trolley-problems/)
+[Trolley Problems tester link](https://neal.fun/absurd-trolley-problems/)<br />
 I hope the link above works.
 * if it doesn't, it's my fault because
 1. didn't research hard enough about formatting a readme file
